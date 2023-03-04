@@ -1,8 +1,8 @@
 Contact: IF YOU WANT SCRIPT DM ME IN TELEGRAM 👇 👇 👇
 
-https://t.me/if_exchange
+https://t.me/tukuno
 
-https://t.me/if_exchange
+https://t.me/tukuno
 
 
 HASHTAGS:
