@@ -19,7 +19,10 @@ HASHTAGS:
 Remove Auto Withdraw From Trust Wallet/Metamask || STOPPER BSC/BNB/ETHEREUM || Recover Hacked Wallet STOP HONEYPOT
 TRX
 Script for Autosend / Auto Withdraw / Auto Transfer for Avax / trx / bnb / bsc / eth
-
+ZK AIRDROP
+ZK COIN
+ZKSYNC
+ZKSYNC AUTO WITHDRAW
 #autosend #bsc #bnb #eth #crypto #ltc #hacked wallet #recover  how to recover hacked wallet , recovery , trust , exodus , bnb ,help #autowithdraw autobsc polygon luna trx btc usdt bnb exs binance coinbase trust wallets exodus#exodus #binance Auto Transfer for Avax / trx / usdt / bnb / bsc / solana / gst / gsm / metamask / trust wallet / tokens / coinmarketcap / coins crypto kripto , avtovivod avtootpravitel , avto , bsc bnb btc , waves , avalanche , lanche , luna , hacked
 
 auto send eth auto send bnb auto send remove
